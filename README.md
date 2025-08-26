@@ -6,6 +6,9 @@
 
 
 ![photo_5289980308336278142_y](https://github.com/user-attachments/assets/a3281956-c38f-4f08-a962-c63cf4707633)
+![photo_5291859446722601650_y](https://github.com/user-attachments/assets/fa075376-431c-429e-b2ac-11528dbd3ed0)
+![photo_5291859446722601649_y](https://github.com/user-attachments/assets/755b6a5d-44ab-4f4e-9b29-85e7dabe61a3)
+![photo_5291859446722601648_y](https://github.com/user-attachments/assets/66d15b57-6eaf-4490-a0e0-ed5a94bb77d6)
 
 
 видео работы
