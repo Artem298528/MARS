@@ -1,6 +1,10 @@
 
 корова на одном моторе
+
+
 фото
+
+
 ![photo_5289980308336278142_y](https://github.com/user-attachments/assets/a3281956-c38f-4f08-a962-c63cf4707633)
 
 
@@ -10,6 +14,8 @@
 
 
 схема коровы
+
+
 <img width="1920" height="1080" alt="схема коровы" src="https://github.com/user-attachments/assets/ce1d1428-3ff4-49f6-897f-154123554327" />
 
 
