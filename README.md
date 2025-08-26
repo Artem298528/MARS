@@ -6,8 +6,8 @@
 
 видео работы
 
+![document_5289980307880049544](https://github.com/user-attachments/assets/27a0c138-1457-45fc-8e49-c8720e000da4)
 
-https://github.com/user-attachments/assets/c3922b51-f246-49f8-bcfa-1ff419daf5af
 
 схема коровы
 <img width="1920" height="1080" alt="схема коровы" src="https://github.com/user-attachments/assets/ce1d1428-3ff4-49f6-897f-154123554327" />
