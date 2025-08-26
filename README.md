@@ -14,5 +14,7 @@
 
 
 сборка коровы
+
+
 <img width="691" height="683" alt="image" src="https://github.com/user-attachments/assets/19ba6034-e2a8-4db7-9bee-24cf60b468c8" />
 
